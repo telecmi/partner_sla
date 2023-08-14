@@ -20,6 +20,6 @@ Call - +917449050050
 
 For Account Creation, Renewal below are the timings
 
-Our working hours -  9.30 - 7PM (exclude 1PM-2PM Lunch break)
+Our working hours -  9.30 AM - 7PM (exclude 1PM - 2PM Lunch break)
 
 Our Working Days - Monday - Saturday
