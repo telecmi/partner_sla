@@ -10,7 +10,13 @@
 | Account Creation  | 2 Hours  | 
 | Account Recreation(Migration)| 1 Day   | 
 
-Support we are available 24/7
+
+
+Support - we are available 24/7
+
+Email - support@telecmi.com
+
+Call - +917449050050
 
 For Account Creation, Renewal below are the timings
 
