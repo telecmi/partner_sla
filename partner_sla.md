@@ -16,4 +16,4 @@ For Account Creation, Renewal below are the timings
 
 Our working hours -  9.30 - 7PM (exclude 1PM-2PM Lunch break)
 
-Our Working Days - Monday - saturday
+Our Working Days - Monday - Saturday
