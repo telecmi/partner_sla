@@ -12,7 +12,7 @@
 
 
 
-Support - we are available 24/7
+#### Support available 24/7
 
 Email - support@telecmi.com
 
